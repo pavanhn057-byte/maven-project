@@ -1,2 +1,1 @@
-Hello, Welcome to great leaders from hariyana
-and kulli
+Hello, Welcome to great leaders from hariyan and kulli
